@@ -1,7 +1,7 @@
 # Quantum Innovation P.C.
 
 📧 **Contact us:** []()  
-🔗 **Website:** [www.quinn.gr]([https://quinn.gr/)  
+🔗 **Website:** [https://quinn.gr/](www.quinn.gr)  
 
 ## About us
 
